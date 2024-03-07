@@ -10,6 +10,6 @@ Peking Committee Easy Wenli Bible
 
 北京翻譯委員會 [京委本](https://pekingcommitteebible.com/)
 
-資料下載 [dropbox](https://www.dropbox.com/scl/fo/p7h63ryk6cajfptp60g8x/h?rlkey=rnhdvrs2y9lbpbe63dgebva4g&dl=0)
+資料下載 [Dropbox](https://www.dropbox.com/scl/fo/p7h63ryk6cajfptp60g8x/h?rlkey=rnhdvrs2y9lbpbe63dgebva4g&dl=0)
 
 聯繫我們 [e-mail](pcewb#proton.me)
