@@ -8,4 +8,5 @@ Peking Committee Easy Wenli Bible
 
 资料分享 [Dropbox](https://www.dropbox.com/scl/fo/p7h63ryk6cajfptp60g8x/h?rlkey=rnhdvrs2y9lbpbe63dgebva4g&dl=0)
 
-联系我们 [e-mail](pcewb#proton.me)
+联系我们 [e-Mail](pcewb#proton.me)
+马来西亚 槟城
