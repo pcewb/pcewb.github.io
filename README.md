@@ -7,5 +7,3 @@ Peking Committee Easy Wenli Bible
 北京翻译委员会浅文理，共36583行，其中经文31102行，顶注5481行。
 
 资料分享 [Dropbox](https://www.dropbox.com/scl/fo/p7h63ryk6cajfptp60g8x/h?rlkey=rnhdvrs2y9lbpbe63dgebva4g&dl=0)
-
-联系我们 [E-Mail](pcewb#proton.me)
